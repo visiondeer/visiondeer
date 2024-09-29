@@ -4,6 +4,7 @@
 
 C=H welcome! 
 
-dni please be respected! 
+massive loser !! this guy,,
+
 
 stop lurkin ya damn creeps!
